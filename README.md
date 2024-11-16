@@ -5,7 +5,7 @@ Welcome to my little hub of entertainment! Here are some of my all-time favorite
 ## 📺 Favorite Series
 - **The Mandalorian**  
   A bounty hunter’s adventures in a galaxy far, far away. Baby Yoda is just adorable! 🍼🌌  
-  ![The Mandalorian](https://upload.wikimedia.org/wikipedia/en/3/3c/The_Mandalorian_season_2_poster.jpg)
+  ![The Mandalorian](https://prod-ripcut-delivery.disney-plus.net/v1/variant/disney/4826879538A92B52B2B316E2E9D5A1BEC5C774C094FF9F96E3265E0D4220E3E6/scale?width=1200&aspectRatio=1.78&format=webp)
 
 ## 🎥 Favorite Movies
 - **Star Wars Series**  
